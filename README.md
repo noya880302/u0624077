@@ -24,4 +24,4 @@
 |:smirk:|:poop:|:smirk:|
 >>:smirk:
 >>>:smirk:
-[![Everything Is AWESOME](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=StTqXEQ2l-Y "Everything Is AWESOME")
+[![Everything Is AWESOME](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=3ogEj53-flU"Everything Is AWESOME")
