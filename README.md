@@ -15,6 +15,6 @@
 * 0624039 周彥澄
 ```
 
-[高科大](https://nkust.edu.tw)
+[高科大](https://www.nkust.edu.tw/)
 
-<https://nkust.edu.tw>
+<https://www.nkust.edu.tw/>
